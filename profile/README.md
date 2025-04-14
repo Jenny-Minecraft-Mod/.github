@@ -2,7 +2,7 @@
 
 Minecraft es uno de los juegos de sandbox más populares del mundo, ofreciendo una amplia gama de modificaciones que añaden nuevas características, aventuras y personajes al juego. Entre estas, el Mod de Jenny ha ganado popularidad por su enfoque único en la jugabilidad. Este mod introduce un nuevo personaje, Jenny, quien aporta una experiencia diferente al mundo de Minecraft, permitiendo a los jugadores interactuar con ella de una manera única y a veces controvertida. En este artículo, exploraremos qué es el Mod de Jenny, cómo instalarlo tanto en PE (Pocket Edition) como en PC, sus características y lo que los jugadores deben tener en cuenta.
 
-## [🔥🔥🔥 Descargar Jenny Mod Minecraft PE/PC 🔥🔥🔥](https://tinyurl.com/mr2jbme8)
+## [🔥🔥🔥 Descargar Jenny Mod Minecraft PE/PC 🔥🔥🔥](https://tinyurl.com/25pmzdjt)
 
 ### ¿Qué es el Mod de Jenny?
 
